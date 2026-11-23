@@ -1,0 +1,1 @@
+# Darslik-6-sinf-tabiiy
